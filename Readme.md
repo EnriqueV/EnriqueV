@@ -1,3 +1,3 @@
-### Hi, I'm Eduardo Gomez! 👋
+### Hi, I'm Eduardo Valencia! 👋
 
-Full Stack Developer | Passionate about Technological Innovation | Entrepreneur
+Developer | Passionate about Technological Innovation | Entrepreneur
